@@ -18,7 +18,7 @@ I’m a **Frontend Web Developer** and **AI/ML Engineer** passionate about build
 - Open-source tech that makes an impact  
 
 ## 📫 How to Reach Me  
-📞 07069629150  
+📞 +2347069629150  
 ✉️ www.linkedin.com/in/odukoya-samuel-012a1826a  
 
 ## 😄 Pronouns  
